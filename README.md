@@ -1,1 +1,1 @@
-# Lesson-JAVA
+# Tyshkiv
